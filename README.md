@@ -1,1 +1,1 @@
-# unlock-command-discordjs
+(https://wearemai.pro 5749)
